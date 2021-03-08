@@ -27,7 +27,7 @@
  8)  :point_right:  I will be so exited to know about your repoteries :+1:
   
   
- 9) :no_good: If you have been here , then meet me personal :zany_face:
+ 9) :no_good: If you have been here , :wink: then meet me personal :zany_face: :smiley:
  
 10)  :man_singer: Die Fan of justin beiber :musical_note:
  
