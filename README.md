@@ -12,6 +12,6 @@
 :grin: i give the first priority to those who give me value :grimacing:
 
 
- :innocent: keep going on forward is the way to reach the god's faith
+ :innocent: keep going on forward is the way to reach the god's faith :anger:
  
 :100: Wish you let me creat some new ideas accosiated with you all :dizzy:
