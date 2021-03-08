@@ -1,6 +1,6 @@
 # hello-i-am-adi.....:wave:
 
-: space_invader: i am currently learning C++
+: tipping_hand_person : i am currently learning C++
 
 :weary: so much stuked in it;
 
