@@ -3,7 +3,7 @@
 :crossed_fingers: Let me introduce "my thoughts" :hugs: , "my passion",:tipping_hand_person:  "some own quotes" :raised_hands:
 
 
-:thought_balloon: Here we go -  :flushed:  :point_down:
+:thought_balloon: Here we go -  :flushed:  :point_down: :upside_down_face:
 
 
 
