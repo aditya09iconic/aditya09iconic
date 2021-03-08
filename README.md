@@ -10,9 +10,9 @@
 
 1) :detective:  i am currently learning C++ :angle:
 
-2) :weary: so much stuked in it;
+2) :weary: so much stuked in it; :speaking_head:
 
-3) :pleading_face: having with u is the great feeling;
+3) :pleading_face: having with u is the great feeling; :busts_in_silhouette:
 
 4) :wink: being good is the just my attitude to influnce you:relieved:
 
