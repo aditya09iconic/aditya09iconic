@@ -20,3 +20,9 @@
   
   
  :no_good: If you have been here , then meet me personal :zany_face:
+ 
+ :man_singer: Die Fan of justin beiber :musical_note:
+ 
+:couple:  Fun fact-   Friends zone with hamburger :hamburger:
+ 
+:punch:  I literally like to play chess if you challenge me :call_me_hand:
