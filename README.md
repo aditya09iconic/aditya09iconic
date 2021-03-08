@@ -8,7 +8,7 @@
 
 
 
-1) :detective:  i am currently learning C++ :angle:
+1) :detective:  i am currently learning C++ :angel:
 
 2) :weary: so much stuked in it; :speaking_head:
 
