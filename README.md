@@ -1,6 +1,6 @@
 # hello-i-am-adi.....:wave:
 
-:crossed_fingers: Let me introduce my thoughts :hugs: , my passion :raised_hands:
+:crossed_fingers: Let me introduce "my thoughts" :hugs: , "my passion",:tipping_hand_person:  "some own quotes" :raised_hands:
 
 
 :thought_balloon: Here we go -  :flushed:  :point_down:
@@ -8,7 +8,7 @@
 
 
 
-1) :detective:  i am currently learning C++
+1) :detective:  i am currently learning C++ :angle:
 
 2) :weary: so much stuked in it;
 
