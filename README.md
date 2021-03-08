@@ -6,9 +6,9 @@
 
 :pleading_face: having with u is the great feeling;
 
-being good is the just attitude of mine to influnce you:relieved:
+:wink: being good is the just attitude of mine to influnce you:relieved:
 
      
-i give the first priority to those who give me value :grimacing:
+:grin: i give the first priority to those who give me value :grimacing:
 
 
