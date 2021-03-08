@@ -1,9 +1,9 @@
 # hello-i-am-adi.....:wave:
 
-:crossed_fingers: Let me introduce "my thoughts" :hugs: , "my passion",:tipping_hand_person:  "some own quotes" :raised_hands:
+:crossed_fingers: Let me introduce :thoughts_balloon:  "my thoughts" :hugs: , "my passion",:tipping_hand_person:  "some own quotes" :raised_hands:
 
 
-:thought_balloon: Here we go -  :flushed:  :point_down: :upside_down_face:
+:upside_down_face:  Here we go -  :flushed:  :point_down: 
 
 
 
