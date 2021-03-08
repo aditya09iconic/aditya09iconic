@@ -1,5 +1,7 @@
 # hello-i-am-adi.....:wave:
 
+:crossed_fingers: Let me introduce my thoughts :hugs: , my passion :raised_hands:
+
 :detective:  i am currently learning C++
 
 :weary: so much stuked in it;
@@ -23,6 +25,6 @@
  
  :man_singer: Die Fan of justin beiber :musical_note:
  
-:couple:  Fun fact-   Friends zone with hamburger :hamburger:
+:couple:  Fun fact-   Friends zone with :yum:  hamburger :hamburger: 
  
-:punch:  I literally like to play chess if you challenge me :call_me_hand:
+:punch:  I literally like to play chess if you challenge me :call_me_hand: :chess_pawn:
