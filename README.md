@@ -2,6 +2,12 @@
 
 :crossed_fingers: Let me introduce my thoughts :hugs: , my passion :raised_hands:
 
+
+:thought_balloon: Here we go -  :flushed:  :point_down:
+
+
+
+
 :detective:  i am currently learning C++
 
 :weary: so much stuked in it;
