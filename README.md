@@ -3,6 +3,9 @@
 :crossed_fingers: Let me introduce   "my thoughts" :thought_balloon:  , :hugs: "my passion",:tipping_hand_person:  "some own quotes" :raised_hands:
 
 
+:pray: Most Welcome :bow:  to my :tipping_hand_man: profile :palms_up_together:
+
+
 :upside_down_face:  Here we go -  :flushed:  :point_down: 
 
 
@@ -27,7 +30,7 @@
  8)  :point_right:  I will be so exited to know about your reposetories :+1:
   
   
- 9) :no_good: If you have been here , :wink: then meet me personal :zany_face: :smiley:
+ 9) :no_good: If you have been here , :wink: then meet me :calling:  personal :zany_face: :smiley:
  
 10)  :man_singer: Die Fan of justin beiber :musical_note:
  
