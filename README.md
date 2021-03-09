@@ -36,7 +36,7 @@
  
 11) :couple:  Fun fact-   Friends zone with :yum:  hamburger :hamburger: 
  
-12) :punch:  I literally like to play chess if you challenge me :call_me_hand: :chess_pawn:
+12) :punch:  I  will literally like to play chess if you challenge me :call_me_hand: :chess_pawn:
 
 
 13) :raised_eyebrow: Hope you got know :unamused: how i am after knowing this above :eyes: .... :roll_eyes: :stars:
