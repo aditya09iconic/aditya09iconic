@@ -1,4 +1,4 @@
-https://media.giphy.com/media/toLexAE5RxaBwfnqPF/giphy.gif  # hello!!! I am Adi.....:wave:
+  # hello!!! I am Adi.....:wave:
 
 :crossed_fingers: Let me introduce   "my thoughts" :thought_balloon:  , :hugs: "my passion",:tipping_hand_person:  "some own quotes" :raised_hands:
 
