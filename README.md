@@ -17,7 +17,7 @@
 
 3) :pleading_face: having with u is the great feeling; :busts_in_silhouette:
 
-4) :wink: being good is the just my attitude to influnce you:relieved:
+4) :wink: being good is just my attitude to influnce you:relieved:
 
      
 5) :grin: i give the first priority to those who give me value :grimacing:
