@@ -24,7 +24,7 @@
  
 7) :100: Wish you let me creat some new ideas accosiated with you all :dizzy:
 
- 8)  :point_right:  I will be so exited to know about your repoteries :+1:
+ 8)  :point_right:  I will be so exited to know about your reposetories :+1:
   
   
  9) :no_good: If you have been here , :wink: then meet me personal :zany_face: :smiley:
