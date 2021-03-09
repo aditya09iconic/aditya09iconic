@@ -1,4 +1,4 @@
-  # Hello!! :raising_hand: I' am Adi.....:wave:
+  # Hello!! :raising_hand_man: I' am Adi.....:wave:
   
   
 
