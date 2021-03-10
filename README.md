@@ -1,3 +1,4 @@
+
 ![giphy](https://user-images.githubusercontent.com/79000241/110469177-540bb000-80ff-11eb-89dc-147e831be700.gif)
   # Hello!! :raising_hand_man: I' am Adi.....:wave:
   
@@ -44,3 +45,7 @@
 
 
 13) :raised_eyebrow: Hope you got know :unamused: how i am after knowing this above :eyes: .... :roll_eyes: :stars:
+
+
+
+![adi gifi](https://user-images.githubusercontent.com/79000241/110576307-8f9d8d00-8186-11eb-85f1-07c179de85d7.gif)
