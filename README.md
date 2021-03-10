@@ -1,5 +1,6 @@
+![JB gifi](https://user-images.githubusercontent.com/79000241/110577131-04bd9200-8188-11eb-8a1f-7c032f9bc0f6.gif)
 
-![giphy](https://user-images.githubusercontent.com/79000241/110469177-540bb000-80ff-11eb-89dc-147e831be700.gif)
+
   # Hello!! :raising_hand_man: I' am Adi.....:wave:
   
   
