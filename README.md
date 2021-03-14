@@ -50,8 +50,13 @@
 13) :raised_eyebrow: Hope you got know :unamused: how i am after knowing this above :eyes: .... :roll_eyes: :stars:
 
 
-![GitHub Logo](/images/logo.png)
-Format: ![Alt Text](url)
+```javascript
+function fancyAlert(arg) {
+  if(arg) {
+    $.facebox({div:'#foo'})
+  }
+}
+```
 
 
 
