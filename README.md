@@ -13,11 +13,11 @@
 
 - 👯 I’m looking to collaborate on **new things**
 
-- 🤝 I’m looking for help with **Coding**
+- 🤝 I’m looking for help with **Coding Developers**
 
-- 📝 I regularly write articles on [java](java)
+- 📝 I regularly write articles on [java-script](java)
 
-- 💬 Ask me about **what you want**
+- 💬 Ask me about **what you want to**
 
 - 📫 How to reach me **adikumbhar0904@gmail.com**
 
