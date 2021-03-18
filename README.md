@@ -11,7 +11,7 @@
 :crossed_fingers: Let me introduce   "my thoughts" :thought_balloon:  , :hugs: "my passion",:tipping_hand_person:  "some own quotes" :raised_hands:
 
 
-:pray: # Most Welcome :bow:  to my :tipping_hand_man: profile :palms_up_together:
+ # :pray: Most Welcome :bow:  to my :tipping_hand_man: profile :palms_up_together:
 
 
 :upside_down_face:  Here we go -  :flushed:  :point_down: 
