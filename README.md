@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **adikumbhar0904@gmail.com** / **https://www.instagram.com/adi_iconic_09/**
 
-- ⚡ Fun fact **friends zone with Hamburger**
+- ⚡ Fun fact **friends zone with  Hamburger :hamburger:**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
