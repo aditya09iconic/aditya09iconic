@@ -19,7 +19,7 @@
 
 - 💬 Ask me about **what you want to**
 
-- 📫 How to reach me **adikumbhar0904@gmail.com**
+- 📫 How to reach me **adikumbhar0904@gmail.com** / **https://www.instagram.com/adi_iconic_09/**
 
 - ⚡ Fun fact **friends zone with Hamburger**
 
