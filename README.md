@@ -1,6 +1,6 @@
 
 ![giphy](https://user-images.githubusercontent.com/79000241/110577300-64b43880-8188-11eb-8393-a6bc08bebad7.gif)
-
+![giphy](https://images.app.goo.gl/Xf4kUAPo7WtL44rNA.gif)
 
 <h1 align="center">Hi 👋, I'm Adi</h1>
 <h3 align="center">Student / Coding learner / progressor</h3>
@@ -23,7 +23,7 @@
 
 - :wink: Access my webesite -  **http://gtechy.unaux.com** :anger:
 
- - :grinning: Text me on my whatsapp as well  - **https://wa.me/918767207980** :speech_balloon:
+ - :grinning: Text me through my whatsapp as well  - **https://wa.me/918767207980** :speech_balloon:
 
 - ⚡ Fun fact **friends zone with  Hamburger :hamburger:**
 
