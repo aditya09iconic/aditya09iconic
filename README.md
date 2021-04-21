@@ -21,6 +21,10 @@
 
 - 📫 How to reach me **adikumbhar0904@gmail.com** / **https://www.instagram.com/adi_iconic_09/**
 
+- :wink: Visit my webesite -  **http://gtechy.unaux.com**
+
+-:grinning: Text me on my whatsapp as well  - **https://wa.me/918767207980**
+
 - ⚡ Fun fact **friends zone with  Hamburger :hamburger:**
 
 <h3 align="left">Connect with me:</h3>
