@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **adikumbhar0904@gmail.com**
 
--:grinning: text me through whatsapp -**http://wa.me/918767207980** :speech_balloon:
+ :grinning: text me through whatsapp -**http://wa.me/918767207980** :speech_balloon:
 
 - ⚡ Fun fact **friends zone _with Hamburger**
 
