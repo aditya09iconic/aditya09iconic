@@ -2,13 +2,12 @@
 ![giphy](https://user-images.githubusercontent.com/79000241/110577300-64b43880-8188-11eb-8393-a6bc08bebad7.gif)
 
 
-
 <h1 align="center">Hi 👋, I'm Adi</h1>
 <h3 align="center">Student / Coding learner / progressor</h3>
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=aditya09iconic" alt="aditya09iconic" /></a> </p>
 
-- 🔭 I’m currently working on **C programming**
+- 🔭 I’m currently working on **on python**
 
 - 🌱 I’m currently learning **C++**
 
@@ -21,8 +20,6 @@
 - 💬 Ask me about **what you want to**
 
 - 📫 How to reach me **adikumbhar0904@gmail.com**
-
- :grinning: text me through whatsapp -**http://wa.me/918767207980** :speech_balloon:
 
 - ⚡ Fun fact **friends zone _with Hamburger**
 
@@ -40,6 +37,8 @@
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=aditya09iconic&show_icons=true&locale=en" alt="aditya09iconic" /></p>
 
 <p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=aditya09iconic&" alt="aditya09iconic" /></p>
+
+
 
   
 
