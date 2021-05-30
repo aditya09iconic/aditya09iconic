@@ -22,6 +22,7 @@
 - 📫 How to reach me **adikumbhar0904@gmail.com**
 - 😁 text me on wp -**http://wa.me/918767207980**
 - 🙃 access my web link- **http://gtechy.unaux.com**
+- 😌 connect with me on insta-**https://www.instagram.com/adi_iconic_09/**
 
 - ⚡ Fun fact **friends zone _with Hamburger**
 
