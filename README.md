@@ -27,8 +27,8 @@
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
-<a href="http://wa.me/918767207980" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/neutral-icons/src/images/icons/Social/whatsapp.svg" alt="aditya kumbhar" height="30" width="40" /></a>
-<a href="https://instagram.com/adi_09_iconic" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/neutral-icons/src/images/icons/Social/instagram.svg" alt="adi_09_iconic" height="30" width="40" /></a>
+<a href="http://wa.me/918767207980" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generahttps://upload.wikimedia.org/wikipedia/commons/thumb/6/6b/WhatsApp.svg/2044px-WhatsApp.svg.png"  height="30" width="40" />Whatspp-me</a>
+<a href="https://instagram.com/adi_09_iconic" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/neutral-icons/src/images/icons/Social/instagram.svg" alt="adi_09_iconic" height="30" width="40" />Insta</a>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
