@@ -1,5 +1,5 @@
 
-
+@import url("https://cdn.jsdelivr.net/npm/bootstrap-icons@1.9.1/font/bootstrap-icons.css");
 
 <h1 align="center">Hi 👋, I'm Adi</h1>
 <h3 align="center">Student / Coding learner / progressor</h3>
