@@ -1,5 +1,4 @@
 
-![giphy](https://user-images.githubusercontent.com/79000241/110577300-64b43880-8188-11eb-8393-a6bc08bebad7.gif)
 
 
 <h1 align="center">Hi 👋, I'm Adi</h1>
