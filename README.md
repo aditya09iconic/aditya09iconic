@@ -6,9 +6,9 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=aditya09iconic" alt="aditya09iconic" /></a> </p>
 
-- 🔭 I’m currently working on ** python**
+- 🔭 I’m currently working on **Backend website**
 
-- 🌱 I’m currently learning **C++**
+- 🌱 I’m currently learning **#cloud computing**
 
 - 👯 I’m looking to collaborate on **new things**
 
@@ -21,7 +21,7 @@
 - 📫 How to reach me **adikumbhar0904@gmail.com**
 - 😁 text me on wp -**http://wa.me/918767207980**
 - 🙃 Explore my website- **http://adidiscuss.epizy.com/**
-- 😌 connect with me on insta-**https://www.instagram.com/adi_iconic_09/**
+- 😌 connect with me on insta-**https://www.instagram.com/adi_iconic_02/**
 
 - ⚡ Fun fact **friends zone _with Hamburger**
 
